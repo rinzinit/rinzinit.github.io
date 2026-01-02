@@ -1,1 +1,0 @@
-# rinzinit.github.io
